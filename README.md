@@ -1,0 +1,1 @@
+nyari apaan lu kontol
